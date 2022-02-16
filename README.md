@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Musefird
+- 👀 I’m interested in lots of things but mainly video games
+- 🌱 I’m currently learning game dev and programming
+- 📫 How to reach me mail: musefird@gmail.com
